@@ -1,0 +1,1 @@
+* [詳細はこちらを参照してください](http://wiki.mcpe.jp/d/PocketMine%2dMP%c7%c9%c0%b8%c8%c7)
